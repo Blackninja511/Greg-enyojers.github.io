@@ -1,2 +1,2 @@
 # Greg-enyojers.github.io
-Made by [Blackninja511](github.com/blackninja511)
+Made by (Blackninja511)[github.com/blackninja511]
